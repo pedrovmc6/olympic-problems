@@ -1,1 +1,0 @@
-oh krl ce chato
